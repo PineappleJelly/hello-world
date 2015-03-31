@@ -1,2 +1,7 @@
 # hello-world
-Yo, I heard you like coding, so I made you a repository so you can code while you code
+Here we go.
+More self important blathering.
+Speak for thine self, for no one can truly understand the depths of one's own stupidity then themselves.
+So here we are, wallowing in our grandoise ideas.
+
+Welcome to the world. It is made of bone and crap.
